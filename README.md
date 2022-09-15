@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jlanes21
+- 👋 Hi, I’m @Jllanes21
 - 👀 I’m interested in connecting with talented people
 - 🌱 I’m currently learning IT Technical Terms
 - 💞️ I’m looking to collaborate on helping talented indviduals to reach their goals 
